@@ -4,7 +4,7 @@ The Mobile App Launch Checklist:
 
 How To Get Your Mobile Done In Twelve Easy Steps?
 
-Mobile applications are becoming the backbone for companies both in customer acquisition, engagement and in enterprise applications. Below are listed tweleve essential steps to go from start to finish. For more information email us at, info@sunverasoftware.com or visit www.sunverasoftware.com
+Mobile applications are becoming the backbone for companies both in customer acquisition, engagement and in enterprise applications. Below are listed tweleve essential steps to go from start to finish. For more information email us at info@sunverasoftware.com or visit www.sunverasoftware.com
 
 
 Step 1
